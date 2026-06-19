@@ -15,7 +15,7 @@
   }$ 
 
 
-$\text{\color{#bfb0a3}  ౿ ݁ ⠀ .⠀ ⠀ c+h heavily enc⠀ ⠀ ︵⠀ ｡⠀ dnc or inspo!⠀ ⠀ ˚ 
+$\text{\color{#bfb0a3}  ౿ ݁ ⠀ .⠀ ⠀c+h heavily enc⠀ ⠀︵⠀⠀ dnc or inspo!⠀ ⠀ ˚ 
   }$ 
   
 
